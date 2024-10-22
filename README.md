@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @MaverickScripts<br>👀 I’m interested in ... mostly Gen AI and machine learning topics<br>🌱 I’m currently learning ...or preferrably working on AGI<br>💞️ I’m looking to collaborate on ...Gen AI projects<br>📫 How to reach me ... mail me at chowdhuryshreyas740@gmail.com<br>😄 Pronouns: ... he/him<br>⚡ Fun fact: ... you seem to be a pointer cuz you have a direct way to my heart!
+👋 Hi, I’m @MaverickScripts, a 3rd-year student at SRM Institute of Science and Technology, Kattankulathur, pursuing Computer Science Engineering w/s Big Data Analytics.<br>👀 I’m interested in working on machine learning and cutting-edge technology, tho not to forget about my keen interest in history<br>✍️ Alongside my studies, I enjoy writing blogs on a variety of topics, exploring the intersection of technology and the world<br>🌱 I'm always on the lookout for new learning opportunities and excited to connect with like-minded tech enthusiasts. Let's collaborate, innovate, and grow together in this ever-evolving tech landscape.<br>📚Feel free to reach out at my social links above<br>
 
 
 ## 🌐 Socials:
